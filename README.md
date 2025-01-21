@@ -1,1 +1,1 @@
-See how much money you are making in real time!
+In real time see how much you are making when you exchange your life energy for $$
